@@ -9,13 +9,13 @@
 
 - 👯 I’m looking collaborating on [DSABUSTEROFFICIAL](https://github.com/DSABUSTEROFFICIAL)
 
-- 👨‍💻 All of my projects are available at [https://65c650c1fb5c5012daea3d43--snazzy-bublanina-15ba68.netlify.app/](https://65c650c1fb5c5012daea3d43--snazzy-bublanina-15ba68.netlify.app/)
+- 👨‍💻 All of my projects are available at [https://dhruv-saboo-portfolio.vercel.app/)
 
 - 💬 Ask me about **Data Structures & Algorithm**
 
 - 📫 How to reach me **https://linktr.ee/dhruvsaboo**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Wu7ElrsNqk5QhiAkjr9YpxGr3DxWYugs/view?usp=sharing](https://drive.google.com/file/d/1Wu7ElrsNqk5QhiAkjr9YpxGr3DxWYugs/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Z4o46XC_mfTd_m9m1FfylHbgeywjBznf/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
