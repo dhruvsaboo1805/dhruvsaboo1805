@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **https://linktr.ee/dhruvsaboo**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Z4o46XC_mfTd_m9m1FfylHbgeywjBznf/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16LziAw4eyOUY2p_0j1RFl3EobgIwde3i/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
